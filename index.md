@@ -1,6 +1,6 @@
 # Política de Privacidade - Hinário IPB
 
-_Última atualização: 19 de março de 2024_
+_Última atualização: 26 de março de 2025_
 
 ## 1. Introdução
 
